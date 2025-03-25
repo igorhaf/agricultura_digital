@@ -1,1 +1,0 @@
-# agricultura_digital
